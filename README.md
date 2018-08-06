@@ -1,2 +1,2 @@
 # -Daily-note
-Note
+李力婉最可爱
